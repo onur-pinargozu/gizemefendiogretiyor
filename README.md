@@ -1,0 +1,1 @@
+Gizemi çok sevirem :) <3
